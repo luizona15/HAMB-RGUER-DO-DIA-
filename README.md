@@ -1,1 +1,0 @@
-# HAMB-RGUER-DO-DIA-
